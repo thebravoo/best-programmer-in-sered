@@ -1,2 +1,2 @@
-# coursea-test
+# Nekukaj ty bzdoch
 Smth very useful
