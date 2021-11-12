@@ -1,2 +1,2 @@
 # Nekukaj ty bzdoch
-Smth very useful
+Peniaze a strach som nikdy (ne)mal
